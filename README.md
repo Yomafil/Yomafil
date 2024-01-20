@@ -10,5 +10,5 @@
 ## Contact Me on
 - Discord: `yomafil`
 
-Online: 7/7days, from 10 am to 1 am, most of the time.
+Online: 7/7days, from ~10/12 am to ~1/3 am, most of the time.
 If you have any questions feel free to ask.
